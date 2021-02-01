@@ -28,12 +28,10 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 ### What are your quirks?
 - I love to celebrate. If you ask me, I might write a rap and perform it for the occasion
 - I cut my own hair and sometimes I get creative. Feel free to comment on my "future" styles. 
-- 
 		
 ### What are some things that people might misunderstand about you that you should clarify?
 - If I'm teasing you, it's because I trust you and I like you
 - If I seem super "stoked", I'm not faking it. I can be genuinely over-the-top sometimes
-- I like to 
 
 ## About my colleagues
 
