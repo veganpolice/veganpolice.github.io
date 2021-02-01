@@ -12,9 +12,9 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 - I like to think critically about the world and am inspired by tools and technology which disrupt the status quo 
 
 ### At GitHub
-- I am a Technical Program Manager working to the Mac Cloud (Actions) project
-- I joined GitHub in 2019 as a novice developer with the original Insights team, "Gitalytics" 
-- Occasional contributor and regular lurker of #ski-and-snowboard & #social-impact 
+- I am a Technical Program Manager working on the Mac Cloud (Actions) project
+- I joined GitHub in 2019 as a novice developer with the original GitHub Insights team, "Gitalytics" 
+- Contributor and member of #ski-and-snowboard & #social-impact 
 
 ### What are some honest, unfiltered things about you?
 - I _love_ to have fun, laugh and express myself
