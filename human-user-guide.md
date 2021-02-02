@@ -14,7 +14,7 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 ### At GitHub
 - I am a Technical Program Manager working on the Mac Cloud (Actions) project
 - I joined GitHub in 2019 as a novice developer with the original GitHub Insights team, "Gitalytics" 
-- Contributor and member of #ski-and-snowboard & #social-impact 
+- Find me in #ski-and-snowboard and #social-impact
 
 ### What are some honest, unfiltered things about you?
 - I _love_ to have fun, laugh and express myself
@@ -23,11 +23,11 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 ### What drives you nuts?
 - Interrupting others and taking up the majority of speaking time
 - Notifications going off in the background of our zoom call
-- Watching golf
+- Meetings that could be documents
 
 ### What are your quirks?
 - I love to celebrate. If you ask me, I might write a rap and perform it for the occasion
-- I cut my own hair and sometimes I get creative. Feel free to comment on my "future" styles. 
+- I cut my own hair and with varying results. Feel free to comment on my "future" styles. 
 		
 ### What are some things that people might misunderstand about you that you should clarify?
 - If I'm teasing you, it's because I trust you and I like you
@@ -41,7 +41,7 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 - I appreciate transparency and value seeing not only your output but your process. It helps me learn and builds trust. 
 
 ### What do you wish colleagues didn’t do?
-- Please don't schedule meetings just to share or receive information. Written communication is preferred. 
+- Please don't schedule meetings just to share or receive work related information. Written communication is preferred.
 - I wish colleagues didn't communicate everything in direct messages. Public communication is preferred. 
 	
 ### How can people earn an extra gold star with you?
