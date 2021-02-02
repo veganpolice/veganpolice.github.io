@@ -8,7 +8,7 @@ Human User Guides (HUGs) are a descriptive document about the author. The goal o
 
 ### As a person
 - I live in a mountain resort town called Whistler. I grew up in the nearby city of Vancouver, Canada. 
-- When I'm not on the computer I'm in the mountains snowboarding, biking and climbing - or planning a party
+- When I'm not on the computer I'm in the mountains snowboarding, biking and climbing
 - I like to think critically about the world and am inspired by tools and technology which disrupt the status quo 
 
 ### At GitHub
