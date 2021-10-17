@@ -1,1 +1,12 @@
-theme: jekyll-theme-minimal
+title: Aaron Rosenberg
+email: aaronrbg@gmail.com
+author:
+  name: Aaron Rosenberg
+  email: aaronrbg@gmail.com
+  website: https://mountainlife.tech
+description: >- # this means to ignore newlines until "baseurl:"
+  Aaron's home page
+url: "https://mountainlife.tech/"
+twitter_username: aaronrosenberg
+github_username: veganpolice
+instagram_username: hottubeveryday
