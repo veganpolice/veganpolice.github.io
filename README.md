@@ -13,7 +13,7 @@
 - No. If we stay under 100 people we are allowed to have an event on crown land, so long as we have certain documents and plans in place. Which we do! 
 
 **What is the venue like?**
-- The SKY venue (if whether looks good) is 15 minute drive North of whistler on the highway, then another 10min (7km) on a forest service road, suitable for pretty much any car, going slow (potholes).
+- The venue is 15 minutes drive North of whistler on the highway, then another 10min (7km) on a forest service road, suitable for pretty much any car, going slow (potholes).
 - There is a large, mostly flat but slightly slanted gravel area that works well for dance floor, stage, generators, portapotties + room for many other things around the parameter. Behind the gravel, there is a grassy area good for camping. There are a few really nice tent spots, many OK tent spots. Last year we had many cars in the camping area.
 - At the back of the grassy area is a short 2m path to the river / falls pictured above. If water level is low, a further 5min walk is required to reach the water. Water is alpine, though there is a small hydro project upstream - I drink it.
 
@@ -31,3 +31,6 @@
 
 **Can I come just for the party and drive back to whistler or elsewhere instead of camping?**
 - Driving under the influence of drugs or alcohol is not acceptable. We don't need any attention from the authorities so please plan to either camp or be sober.
+
+**What do volunteers do?"
+- Stay tuned for emailed info!
