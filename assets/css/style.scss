@@ -2,7 +2,11 @@
 ---
 
 @import "{{ site.theme }}";
-
-header {
+.page-header {
   display: none;
+  background-color: #000000;
+}
+
+.main-content {
+  background-color: #000000;
 }
