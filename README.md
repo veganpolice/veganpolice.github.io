@@ -1,4 +1,7 @@
 # Final Fest 8: Sḵwx̱wú7mesh / Squamish
+
+Full schedule coming soon...
+
 ## Adventure, Fun, Party
 
 Final Fest 8 has landed, in Squamish!
