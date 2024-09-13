@@ -3,7 +3,7 @@
 
 Final Fest 8 has landed, in Squamish!
 
-[answering a few questions](https://forms.gle/FneKNjrGYj3SM1526)
+Help design the weekend by [answering a few questions](https://forms.gle/FneKNjrGYj3SM1526).
 
 Join us on Oct 12th and/or 13th for
 - Adventurous activities
