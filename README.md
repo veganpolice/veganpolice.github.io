@@ -8,8 +8,8 @@ Help design the weekend by [answering a few questions](https://forms.gle/FneKNjr
 Join us on Oct 12th and/or 13th for
 - Adventurous activities
 - Fun workshops
+- BBQ at Aaron's house
 - Party at Trickster's hideout
-- Party at Aaron's house
 - Friendzgiving potluck
 
 ![alt text](/ff8.png)
