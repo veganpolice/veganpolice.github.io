@@ -12,9 +12,9 @@ Final Fest 8 takes place on Oct 12th and 13th in Squamish, BC
 - 200 person capacity on Saturday
 - 50 person capacity on Sunday
 
-![alt text](/ff8schedule.png)
+![alt text](/ff8program.png)
 
-![alt text](/ff8.png)
+![alt text](/ff8poster.png)
 
 ## FAQ
 Coming soon
