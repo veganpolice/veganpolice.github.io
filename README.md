@@ -3,12 +3,14 @@
 
 Final Fest 8 has landed, in Squamish!
 
-Help design the weekend by [answering a few questions](https://forms.gle/FneKNjrGYj3SM1526).
-
 Join us on Oct 12th and/or 13th for
-- Adventurous activities around Squamish
+- Adventures in nature around Squamish
 - Fun workshops, games and activities
 - Parties at Aaron's & Tricker's Hideout
+
+# [RSVP](https://forms.gle/FneKNjrGYj3SM1526) and help us schedule things based on your interests
+
+Final Fest brings wonderful people together to party, learn, play and eat good food. Our 30 to 200 person events feature festival production and programming in unique and intimate settings. Join us for the Final Fest, again.
 
 ![alt text](/ff8schedule.png)
 
