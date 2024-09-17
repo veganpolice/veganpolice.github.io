@@ -8,7 +8,7 @@ Final Fest brings wonderful people together to party, learn, play and eat good f
 Final Fest 8 takes place on Oct 12th and 13th in Squamish, BC
 - Adventures in nature around Squamish
 - Fun workshops, games and activities
-- Parties at Aaron's & Tricker's Hideout
+- Parties at Aaron's & Trickster's Hideout
 
 # [RSVP](https://forms.gle/FneKNjrGYj3SM1526)
 - 200 person capacity on Saturday
