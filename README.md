@@ -1,5 +1,3 @@
-# Final Fest 8
-
 Final Fest brings wonderful people together to party, learn, play and eat good food. Our 30- to 200-person events feature festival production and programming in unique and intimate venues. Join us for the Final Fest, again!
 
 ## [buy tickets](https://trickstershideout.ca/event/final-fest-8/) for Saturday night
