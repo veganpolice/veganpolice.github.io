@@ -7,6 +7,8 @@ Final Fest is a semi-annually held micro-festival celebrating the end of summer.
 - **Fun** workshops at Final House & Create Makerspace
 - **Parties**: BBB-BBQ, Trickster's Hideout, Final House Party
 
+## Join the [whatsapp group](https://chat.whatsapp.com/BtDbqS3gHFF4aWkHU26k6R) for latest info and participation
+
 #### Sat Oct 12th
 - Adventures | **9am - 12pm** Around Squamish
 - Workshops | **12pm - 3pm** Create Makerspace
