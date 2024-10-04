@@ -1,20 +1,15 @@
-Final Fest is a small festival celebrating the end of summer.
 
-### Oct 12th & 13th, 2024
 
-## Location: Squamish, BC
-- Trickster's hideout
-- Aaron's house
-- Create makerspace
-- Local trails and parks
+Final Fest is a small festival celebrating the end of summer. Join us for an extraordinary weekend of food, 
 
-Final Fest 8's theme...
-## Adventure, Fun, Party
-- *Adventures* in nature
-- *Fun* workshops
-- *Parties* BBQ, club takeover, house party
+## Theme: Adventure, Fun, Party
+- *Adventures* in the nature around Squamish, BC
+- *Fun* workshops at Mojo Dojo Casa House & Create Makerspace
+- *Parties*: BBB-BBQ, Trickster's Hideout, Final House
 
-# [RSVP](https://forms.gle/FneKNjrGYj3SM1526)
+### dates: Oct 12th & 13th, 2024
+### [RSVP](https://forms.gle/FneKNjrGYj3SM1526)
+### Full schedule and locations coming soon
 
 ![alt text](/ff8program.png)
 
