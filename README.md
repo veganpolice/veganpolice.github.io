@@ -25,6 +25,8 @@ Final Fest is a semi-annually held micro-festival celebrating the end of summer.
 
 ![alt text](/ff8sched.png)
 
+![alt text](/ff8program.png)
+
 ![alt text](/ff8BBQ.png)
 
 ![alt text](/ff8poster.png)
