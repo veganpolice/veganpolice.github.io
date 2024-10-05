@@ -11,17 +11,7 @@ Final Fest is a semi-annually held micro-festival celebrating the end of summer.
 
 #### Secure your [ticket for Saturday Night](https://www.eventbrite.ca/e/final-fest-8-tickets-1021771886217)
 
-#### Sat Oct 12th
-- Adventures | **9am - 12pm** Around Squamish
-- Workshops | **12pm - 3pm** Create Makerspace & Final House
-- BBQ housewarming | **3pm-7pm** Final House
-- Club party | **9pm - 2am** Trickster's hideout
-
-#### Sun Oct 13th
-- Adventures | **12pm - 3pm** Around Squamish
-- Workshops | **3pm - 6pm** Final House
-- Potluck | **6pm - 9pm** Final House
-- House party | **9pm - late** Final House
+#### Signup to help out! [](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
 
 ![alt text](/ff8sched.png)
 
