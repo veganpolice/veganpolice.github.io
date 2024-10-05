@@ -10,11 +10,11 @@ Feel welcome to join for part of Final Fest, such as the BBQ or party... or come
 - **Fun** workshops at Final House & Create Makerspace
 - **Parties**: BBB-BBQ, Trickster's Hideout, Final House Party
 
-#### Join the [whatsapp group](https://chat.whatsapp.com/BtDbqS3gHFF4aWkHU26k6R) for latest info and participation
+#### Join the [whatsapp group](https://chat.whatsapp.com/BtDbqS3gHFF4aWkHU26k6R) for latest info
 
 #### Secure your [ticket for Saturday Night](https://www.eventbrite.ca/e/final-fest-8-tickets-1021771886217)
 
-#### Signup to help out! [](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
+#### Signup [and help out](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
 
 ![alt text](/ff8sched.png)
 
