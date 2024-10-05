@@ -23,7 +23,7 @@ Join part of the fun, such as the BBQ & party... or come for the whole thing, an
 #### How does Final Fest cost?
 Anywhere from $10 to $50+, depending on your financial situation and the activites you participate in.
 The sat night party is $10.
-If you are participate in the whole weekend, $50 donation is suggested. Or $20 per party / meal.  
+If you join for the whole weekend, a $50 donation is suggested. Or $20 per party / meal. Send donations to aaronrbg@gmail.com.
 Laser cutting workshop has additional costs. 
 
 #### Where can I stay?
