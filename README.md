@@ -14,11 +14,22 @@ Join part of the fun, such as the BBQ & party... or come for the whole thing, an
 
 #### Secure your [ticket for Saturday Night](https://www.eventbrite.ca/e/final-fest-8-tickets-1021771886217)
 
-#### Help produce Final Fest and [volunteer](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721) or [a lead](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=1238383211#gid=1238383211)
+#### Help produce Final Fest and signup as a [volunteer](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721) or [lead](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=1238383211#gid=1238383211)
 
 ![alt text](/ff8program2.png)
 
 ![alt text](/ff8sched.png)
+
+#### How does Final Fest cost?
+Anywhere from $10 to $50+, depending on your financial situation and the activites you participate in.
+The sat night party is $10.
+If you are participate in the whole weekend, $50 donation is suggested. Or $20 per party / meal.  
+Laser cutting workshop has additional costs. 
+
+#### Where can I stay?
+Camp in Aaron's yard (please let him know if you didn't complete the RSVP form)
+In your vehicle at Aaron's house
+Friend's or Airbnbs in the Squamish area
 
 ![alt text](/ff8BBQ.png)
 
