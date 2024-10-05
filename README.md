@@ -16,9 +16,9 @@ Feel welcome to join for part of Final Fest, such as the BBQ or party... or come
 
 #### Help produce Final Fest and [volunteer](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
 
-![alt text](/ff8sched.png)
+![alt text](/ff8program2.png)
 
-![alt text](/ff8program.png)
+![alt text](/ff8sched.png)
 
 ![alt text](/ff8BBQ.png)
 
