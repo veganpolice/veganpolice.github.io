@@ -5,7 +5,7 @@ Join us for a weekend of food, activities, parties and new connections, *with fe
 
 Feel welcome to join for part of Final Fest, such as the BBQ or party... or come for the whole thing, and even help out!
 
-## FF8 theme: Adventure, Fun, Party
+## This year's theme: Adventure, Fun, Party
 - **Adventures** in nature around Squamish, BC
 - **Fun** workshops at Final House & Create Makerspace
 - **Parties**: BBB-BBQ, Trickster's Hideout, Final House Party
