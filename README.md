@@ -14,7 +14,7 @@ Feel welcome to join for part of Final Fest, such as the BBQ or party... or come
 
 #### Secure your [ticket for Saturday Night](https://www.eventbrite.ca/e/final-fest-8-tickets-1021771886217)
 
-#### Signup [and help out](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
+#### Help produce Final Fest and [volunteer](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721)
 
 ![alt text](/ff8sched.png)
 
