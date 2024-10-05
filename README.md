@@ -1,6 +1,6 @@
 
 
-Final Fest is a semi-annually held micro-festival celebrating the end of summer. 
+Final Fest is a micro-festival celebrating the end of summer. 
 Join us for a weekend of food, activities, parties and new connections, *with festival magic!*
 
 Feel welcome to join for part of Final Fest, such as the BBQ or party... or come for the whole thing, and even help out!
