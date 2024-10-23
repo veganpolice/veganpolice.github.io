@@ -1,36 +1,13 @@
-
-
 Final Fest is a micro-festival celebrating the end of summer. 
-Food, activities and new connections, *with festival magic!*
-
-Join part of the fun, such as the BBQ & party... or come for the whole thing, and even [help out](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?usp=sharing) :)
-
-## This year's theme: Adventure, Fun, Party
-- **Adventures** in nature around Squamish, BC
-- **Fun** workshops at Final House & Create Makerspace
-- **Parties**: BBB-BBQ, Trickster's Hideout, Final House Party
-
-#### Join the [whatsapp group](https://chat.whatsapp.com/BtDbqS3gHFF4aWkHU26k6R) for latest info
-
-#### Secure your [ticket for Saturday Night](https://www.eventbrite.ca/e/final-fest-8-tickets-1021771886217)
-
-#### Help produce Final Fest and signup as a [volunteer](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=978049721#gid=978049721) or [lead](https://docs.google.com/spreadsheets/d/1msK-zJvOqQfueVdaDLH3dN3UIqKwXs7-deO9uGzwL00/edit?gid=1238383211#gid=1238383211)
-
-![alt text](/ff8program2.png)
-
-![alt text](/ff8sched.png)
-
-#### How does Final Fest cost?
-Anywhere from $10 to $50+, depending on your financial situation and the activites you participate in.
-The sat night party is $10.
-If you join for the whole weekend, a $50 donation is suggested. Or $20 per party / meal. Send donations to aaronrbg@gmail.com.
-Laser cutting workshop has additional costs. 
-
-#### Where can I stay?
-Camp in Aaron's yard (please let him know if you didn't complete the RSVP form)
-In your vehicle at Aaron's house
-Friend's or Airbnbs in the Squamish area
-
-![alt text](/ff8BBQ.png)
-
-![alt text](/ff8poster.png)
+The 8th edition of Final Fest took place in October, 2024. 
+Stay tuned for Final Fest 9! Join the [whatsapp group](https://chat.whatsapp.com/BtDbqS3gHFF4aWkHU26k6R).
+![alt text](/ff8poster-2.png)
+![alt text](/ff8poster-1.png)
+![alt text](/ff7poster-1.png)
+![alt text](/ff7poster-2.png)
+![alt text](/ff6poster.png)
+![alt text](/ff5poster.jpg)
+![alt text](/ff4poster.jpg)
+![alt text](/ff3poster.png)
+![alt text](/ff2poster.png)
+![alt text](/ff1poster.png)
