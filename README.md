@@ -10,4 +10,4 @@ Stay tuned for Final Fest 9! Join the [whatsapp group](https://chat.whatsapp.com
 ![alt text](/ff4poster.jpg)
 ![alt text](/ff3poster.png)
 ![alt text](/ff2poster.png)
-![alt text](/ff1poster.png)
+![alt text](/ff1poster.jpg)
